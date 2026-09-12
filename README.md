@@ -1,1 +1,0 @@
-# Sumatif-Tengah-Semester-fikih-ganjil
